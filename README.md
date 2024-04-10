@@ -1,1 +1,7 @@
 CRYPTO RECOVERY EXPERT FASTFUNDRECOVERY.
+
+If you’re new to crypto investment or have been scammed from crypto investment, This is the best information. Many binary operations are rippers. I invested about 105,000usd then I decided to withdraw after several weeks but the withdrawal wasn’t successful, then I tried to contact the binary operation email and phone number, but I didn’t get any response from them that was when everything started looking weird. Some weeks later I got an email from them insisting I should invest more money if I wanted to withdraw my money which I rejected, and I never heard from them again that was when I knew I had been scammed. I was devastated at that moment and felt so bad that my hard-earned money was gone. After some months I came across a lot of testimonies on many bitcoin sites about how Fastfundrecovery8 @ GMAIL com had helped many people recover their stolen, scammed, or duped money on bitcoin or any other form of digital currency. I contacted them and they promised to help me get my money back and asked me for some personal details about the scammer which I provided. The result was amazing I recovered all my stolen money back within 48 hours I was so happy as I never believed I could get my money back. Thank you for restoring Joy into my life after much pain I’m so indebted!! You can contact them via their mail or WhatsApp ( 19037176241)
+
+Gmail: Fastfundrecovery8 AT Gmail dot com
+
+web : fastfvndrecovery.com
